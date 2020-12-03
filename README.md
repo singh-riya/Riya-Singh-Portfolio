@@ -1,1 +1,0 @@
-At the end of the day, life should certainly ask us whether we want to save the changes or not.
